@@ -3,9 +3,9 @@
 
 - 💬 Ask me about **Chemistry. That is my other major too.**
 
-- 📫 How to reach me **leegemonk1980@gmail.com**
+- 📫 How to reach me **leesllicl@gmail.com**
 
-- ⚡ Fun fact **I love to walk and jog. I have completed a full marathon before.**
+- ⚡ Fun facts **I love to walk and jog. I have completed a full marathon before. I have a thing for Hainanese Chicken Rice. **
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
