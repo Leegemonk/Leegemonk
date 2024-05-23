@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **leesllicl@gmail.com**
 
-- ⚡ Fun facts **I love to walk and jog. I have completed a full marathon before. I have a thing for Hainanese Chicken Rice. **
+- ⚡ Fun facts **I love to walk and jog. I have completed a full marathon before. If you know of any nice Hainanese chicken rice stores, please share the location with me. **
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
